@@ -14,9 +14,11 @@ Hustle for cash, yes we all have to get started somehow and unless you already h
 Step 2. Have the cash on a debit card ready to be deployed on crypto apps such as: 
 
 *Crypto.com 1.5% crypto purchase fees
+<br>
 https://crypto.com/app/2b5hnjwp46
 <br>
 *Swissborg 1% BTC purchase fees
+<br>
 join.swissborg.com/r/edwardF4HH
 
 If your happy to pay more percentage in fees then go for exchanges such as Coinbase and Binance.

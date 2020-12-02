@@ -15,6 +15,7 @@ Step 2. Have the cash on a debit card ready to be deployed on crypto apps such a
 
 *Crypto.com 1.5% crypto purchase fees
 https://crypto.com/app/2b5hnjwp46
+<br>
 *Swissborg 1% BTC purchase fees
 join.swissborg.com/r/edwardF4HH
 

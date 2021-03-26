@@ -1,4 +1,4 @@
-# ZeroToHero
+# Crypto Article: ZeroToHero
 
 
 How you could go from Zero to Hero with Crypto.
